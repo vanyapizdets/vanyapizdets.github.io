@@ -1,1 +1,0 @@
-# vanyapizdets.github.io
